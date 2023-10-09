@@ -1,1 +1,1 @@
-# StrawTradeScamV4.2
+(THIS TRADESCAM SCRIPT IS PAID)
